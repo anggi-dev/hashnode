@@ -17,4 +17,8 @@ Fitur ini sangat berguna untuk berbagi informasi sensitif melalui pesan suara de
 
 Anda dapat mengenali pesan suara dengan fitur ini dari ikon "one time" dan pesan tersebut hanya dapat diputar satu kali.
 
-Sudahkah Anda mencoba fitur terbaru ini?
+Ini bukan kali pertama Whatsapp memperkenalkan fitur ini, sebelumnya Whatsapp sudah memperkenalkan fitur ini di tahun 2021 pada sektor foto dan video.
+
+Bagaimana pendapat kalian mengenai fitur ini ?
+
+Apakah anda sudah mencoba fitur terbaru ini?
